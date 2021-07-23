@@ -1,5 +1,13 @@
 # Mixed Week 1
 
+- Tommy Olivencia - Lobo Domesticado
+- Tito Puente - Mambo Gallego
+- Cheo Feliciano - Comerciante Del Amor
+- Oscar De Leon - Mi Mujer Es Una Bomba
+- Orquesta La Solucion - La Rueda
+- Paquito Guzman - 25 Rosas
+- Andy Montanez - Dulce Veneno
+
 ## Practica with Music (3 songs, 15 minutes before class)
 
 ## Warmup Stretches
