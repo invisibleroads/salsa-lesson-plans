@@ -1,0 +1,90 @@
+# Mixed Week 1
+
+## Practica with Music (3 songs, 15 minutes before class)
+
+## Warmup Stretches
+
+- Ankle Rotation
+- Knee Rotation
+- Hip Rotation
+- Cat/Cow for Back
+- Shoulder Rotation
+- Neck Rotation
+- Cambré
+- Forward Backward Ribs
+- Side to Side Ribs
+- Figure 8 Hips
+- Shoulder Hip Counter Movement
+
+## Warmup Shines
+
+- Musicality: Clave + Conga with the Salsa Rhythm App, Clap to the Clave, Clap to the Conga
+- North South West Basic
+- Diagonal Basic
+- Back Basic
+- Side Basic
+- Right Turn
+- Left Turn
+- Crossover Basic into Spiral
+
+1. Go through the warmup and clap to the clave on 2 and 3.
+2. Go through the warmup and clap to the conga on 2 and 6.
+
+## Turn Drills (Beginner) and Spin Drills (Intermediate)
+
+- Right Turn
+- Left Turn
+- Inside Turn
+- Outside Turn
+- Double Right
+- Double Left
+
+## Shines Routine
+
+- Forward Basic x 2
+- Hip Basic x 2
+- Ankles Out Basic x 2
+- Hook Step x 2
+- Crossover Basic x 2
+
+## Shines Face Off
+
+Split into two groups and randomize your shines!
+
+## Basic Techniques Review
+
+- From Closed, Basic
+- From Closed, Crossbody
+- From Two Hand Open, Crossbody
+- From Two Hand Open, Woman Right Turn
+- From Left Open, Woman Right Turn
+- From Left Open, Man Right Turn
+- From Closed, Inside Turn
+- From Closed, Inside Turn into Woman Right Turn
+
+## Practica with Music (1 song)
+## Intermediate Techniques Review
+
+- From Closed, Roundabout
+- From Closed, Roundabout x 2
+- From Closed, Inside Turn, Outside Turn
+- From Two Hand Open, Woman Bridge
+- From Left Over Right Break, Titanic Uno
+
+## Practica with Music (1 song)
+## Advanced Techniques Review
+
+- From Closed, Inside Turn into 360
+- From Right Open Flare, Crossbody into Wrap, Yo-Yo
+- From Closed, Man Left Turn Drop Catch, Windmill Outside Turn
+
+## Practica with Music (1 song)
+## Role Swap (1 song)
+
+Leads become follows and follows become leads!
+
+## Pattern Improv
+
+Ask for patterns from participants and perform them together!
+
+## Practica with Music (2 songs)
