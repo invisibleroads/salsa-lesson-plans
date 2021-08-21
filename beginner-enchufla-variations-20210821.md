@@ -1,5 +1,8 @@
 # Beginner Enchufla Variations
 
+- The Enchufla is a traditional Cuban partner step.
+- The Triple Enchufla is a pattern popularized by Erica of Salsa Rosa in Guatemala and resembles traditional Cumbia turn patterns popular in Central America.
+
 ## Warmup
 - Ankles, Knees, Hips, Ribs, Shoulders, Neck, Head
 - Cambres
