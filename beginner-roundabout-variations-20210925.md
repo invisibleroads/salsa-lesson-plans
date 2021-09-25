@@ -14,13 +14,13 @@ Leads in one line face follows in opposite line with no touching.
 
 - Basic x 2
 - Open Break
-- Crossover Steps to the Left (Woman - Right in front of Left, Men - Right behind Left)
+- Crossover Shuffle Left (Woman - Right in front of Left, Men - Right behind Left)
 
 ### Phase 1
 
 - Basic x 2
 - Open Break
-- Crossover Steps with 360 Rotation (Woman - Right over Left, Men - Right behind Left)
+- Crossover Shuffle 360 (Woman - Right over Left, Men - Right behind Left)
 
 ## Review
 
